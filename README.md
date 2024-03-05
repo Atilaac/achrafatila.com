@@ -10,8 +10,8 @@ You have a chance to hear from people who are not just talking about, but buildi
 
 ---
 ## More Info
-- [Google Scholar](https://scholar.google.com/citations?user=TTAujLUAAAAJ&hl=en))
-- [ResearchGate](https://www.researchgate.net/profile/Achraf-Atila))
-- [Twitter (X)](https://twitter.com/AchrafAtila))
+- [Google Scholar](https://scholar.google.com/citations?user=TTAujLUAAAAJ&hl=en)
+- [ResearchGate](https://www.researchgate.net/profile/Achraf-Atila)
+- [Twitter (X)](https://twitter.com/AchrafAtila)
 - [Link](https://www.linkedin.com/in/achrafatila/)
 - [ORCID](https://orcid.org/0000-0003-4148-5908)
